@@ -1,1 +1,0 @@
-Course by Micky Fire
